@@ -2,7 +2,7 @@
 - 👀 I’m interested in anime waifu
 - 🌱 I’m currently learning to survive
 - 💞️ I’m looking to collaborate on anything at all
-- 📫 How to reach me pigeon or owl only
+- 📫 How to reach me : pigeon or owl only
 - ⚡ Fun fact: A jiffy is an actual unit of time. It's 1/100th of a second.
 
 <!---
